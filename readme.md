@@ -64,8 +64,10 @@ Collection of beginner-friendly scripts for:
 Want to collaborate or hire me?
 
 - 🌐 Website: coming soon  
-- 📧 Email: your-email@example.com  
-- 💼 GitHub: https://github.com/okasha308  
+- 📧 Email: mohaka222@gmail.com  
+- 💼 GitHub: https://github.com/okasha308
+-    Tel: +256 761296965
+-    WhatsApp:+249 907173676 
 
 ---
 
